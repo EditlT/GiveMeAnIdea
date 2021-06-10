@@ -13,4 +13,7 @@ If you have any questions, come to me and I will answer them.
 
 Also, if you read the website I did say it is partially educational. When you are looking for the secret link, all of them will be google forms. All of them are math problems. Well, most of them. 
 
+Also also, if you figure it out, ###DON'T TELL ANYBODY. 
+I need you to do all of the files because I don't want people seeing it's wrong and not doing it. So, if you figure it out, fill the other files that you have not done out.
+
 Google forms link: https://forms.gle/QJzWTwydSyg7Kq2R8
