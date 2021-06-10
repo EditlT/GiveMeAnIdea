@@ -11,5 +11,6 @@ It still is an idea for a website form. But with a little twist.
 Since it is a secret, first response in there I will make that website and share it will the whole class.
 If you have any questions, come to me and I will answer them.
 
+Also, if you read the website I did say it is partially educational. When you are looking for the secret link, all of them will be google forms. All of them are math problems. Well, most of them. 
 
 Google forms link: https://forms.gle/QJzWTwydSyg7Kq2R8
