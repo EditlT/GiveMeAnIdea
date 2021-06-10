@@ -12,4 +12,4 @@ Since it is a secret, first response in there I will make that website and share
 If you have any questions, come to me and I will answer them.
 
 
-Google forms link: 
+Google forms link: https://forms.gle/QJzWTwydSyg7Kq2R8
