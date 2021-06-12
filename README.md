@@ -21,3 +21,7 @@ Google forms link: https://forms.gle/QJzWTwydSyg7Kq2R8
 
 
 Sadly, we apparently let some bots out so uh, if you see them do your best to stop them.
+
+There names are: Tom Kenny, Tate McRae, Olivia Rodrigo, Ed Sheeran, Tom Holland, Hugh Jackman.
+
+Keep on the lookout. Don't ask me how they got let out. Long story.
