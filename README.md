@@ -25,3 +25,5 @@ Sadly, we apparently let some bots out so uh, if you see them do your best to st
 There names are: Tom Kenny, Tate McRae, Olivia Rodrigo, Ed Sheeran, Tom Holland, Hugh Jackman.
 
 Keep on the lookout. Don't ask me how they got let out. Long story.
+
+BEWARE ENTERING THE MAIN FOLDER. LOT OF FILES.
